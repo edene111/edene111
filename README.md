@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @edene111
+- 🌱 I've been coding for two years
+- 💞️ I’m looking forward to creating new projects
